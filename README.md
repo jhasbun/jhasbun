@@ -18,7 +18,6 @@ I enjoy breaking things, understanding how they work, and building systems that 
 ### 📫 How to Reach Me
 - **LinkedIn:** *https://www.linkedin.com/in/jorgehasbun*  
 - **Email:** *Jorgehasbun4@gmail.com*
-- 
 ---
 
 Feel free to connect or collaborate — always open to new ideas and projects!
